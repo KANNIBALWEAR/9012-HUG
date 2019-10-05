@@ -12,4 +12,4 @@ Belongs to Kannibal 'Raw' Season.
 - slide on your bag
 - slide on your notes
 - extrawide extension
-- chained platforms
+- chained platforms -> sideview: ccccc sideview2: /_7 (jak spinka)
